@@ -1,5 +1,5 @@
 <h2>
-	小蓝鸟VPN是一款IPLC高速专线机场，一键翻墙超方便，秒开4K不卡顿<span class="css-901oao css-16my406 r-poiln3 r-bcqeeo r-qvutc0" style="color:#0F1419;font-size:17px;line-height:inherit;font-family:-apple-system, BlinkMacSystemFont, &quot;background-color:#FFFFFF;"><span>～</span></span>
+	小蓝鸟VPN是一款IPLC高速专线机场，一键翻墙超方便，秒开4K不卡顿<span class="css-901oao css-16my406 r-poiln3 r-bcqeeo r-qvutc0" style="color:#0F1419;font-size:17px;line-height:inherit;font-family:-apple-system, BlinkMacSystemFont, &quot;background-color:#FFFFFF;"><span>～</span></span>IOS
 </h2>
 <h2>
 	<span class="css-901oao css-16my406 r-poiln3 r-bcqeeo r-qvutc0" style="color:#0F1419;font-size:17px;line-height:inherit;font-family:-apple-system, BlinkMacSystemFont, &quot;background-color:#FFFFFF;"><span>破解版是永久免费使用！！！扫码下方二维码注册即用</span></span>
